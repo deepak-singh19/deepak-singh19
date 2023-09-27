@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **deepak96153@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1XWHlbCISnj2G6ELeNywf_LTpcAFL59x6/view?usp=drive_link](https://deepaksinghofficial.com/)
+- 📄 Know about my experiences [https://deepaksinghofficial.com/ link](https://deepaksinghofficial.com/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
