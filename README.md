@@ -4,8 +4,6 @@
 - 💬 Ask me about **React, Svelte, Node**
 
 - 📫 How to reach me **deepak96153@gmail.com**
-
-- 📄 Know about my experiences [https://deepaksinghofficial.com/](https://deepaksinghofficial.com/)
   
 - 📄 Blogs [Hashnode](https://hashnode.com/@deepak96153)
 
